@@ -1,4 +1,4 @@
-![conquest_min](https://github.com/conquistarealty/conquistarealty/assets/165105225/eaaa83df-b56f-4981-83e7-28f418bf5036)
+![conquest_nwm 2](https://github.com/conquistarealty/conquistarealty/assets/165105225/51f2f0f2-dea1-4404-bc02-65631de5306c)
 <h1>
   VENI. VIDI. VICI. 💀
 </h1>
